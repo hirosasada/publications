@@ -2,7 +2,7 @@
 **Books:**  
 - **農業保護政策の起源: 近代日本の農政1874~1945（勁草書房, 2018年）**  
 - **일본 발전국가의 기원과 진화 (Hanul Publishing, 2014)**  
-- ***The Evolution of Japanese Developmental State (Routledge, 2013)***  
+- ***The Evolution of Japanese Developmental State*** **(Routledge, 2013)**  
 - **制度発展と政策アイディア (木鐸社, 2011)**  
 
 **Journal Articles:**  
