@@ -16,7 +16,7 @@ The Evolution of Japanese Developmental State (Routledge, 2013)
 “Japan’s New Agricultural Trade Policy and Electoral Reform: ‘Agricultural Policy in an Offensive Posture [seme no nōsei],’” in Japanese Journal of Political Science, Vol. 9. No. 2, August 2008, pp. 121-144.  
   
 (Other articles)  
-“Youth and Nationalism in Japan,” in The SAIS Review, Vol. 26, No. 2. Summer- Fall 2006, pp. 109-122.  
+“Youth and Nationalism in Japan,” in The SAIS Review, Vol. 26, No. 2. 2006, pp. 109-122.  
 「国際政治におけるNGO活動の影響と問題点」 [NGOs in International Politics: Their Influences and Problems], coauthored with A. Kajiwara,『国民経済雑誌』Vol. 191, No. 5. 2005, pp.37-48.  
 「森林認証制度とグローバリズム」 [Globalization and Forest Certification System], coauthored with A. Kajiwara,『国民経済雑誌』Vol. 188, No. 5. 2003, pp. 51-61.  
   
