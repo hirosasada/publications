@@ -1,4 +1,3 @@
-## [Back to home](https://hirosasada.github.io/)      
 
 **Books:  
 農業保護政策の起源: 近代日本の農政1874~1945（勁草書房, 2018年）  
@@ -33,3 +32,4 @@ The Evolution of Japanese Developmental State (Routledge, 2013)
 Review of Institutions, Incentives, and Electoral Participation in Japan, by Y. Horiuchi (2005) in Journal of East Asian Studies, Vol.7, No.3, (December 2007), pp.506-508.**  
 Review of Japan Remodeled: How Government and Industry are Reforming Japanese Capitalism, by S. Vogel (2005) in Governance, Vol. 20, No.4, (October 2007), pp.713-715.**  
    
+### [Back to home](https://hirosasada.github.io/)    
