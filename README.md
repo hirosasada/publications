@@ -33,4 +33,4 @@
 - Review of Institutions, Incentives, and Electoral Participation in Japan, by Y. Horiuchi (2005) in *Journal of East Asian Studies*, Vol.7, No.3, 2007, pp.506-508.  
 - Review of Japan Remodeled: How Government and Industry are Reforming Japanese Capitalism, by S. Vogel (2005) in *Governance*, Vol. 20, No.4, 2007, pp.713-715.  
    
-### [Back to home](https://hirosasada.github.io/)    
+#### [Back to home](https://hirosasada.github.io/)    
