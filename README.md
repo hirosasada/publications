@@ -8,7 +8,7 @@
 
 **Journal Articles:**  
 (Peer-reviewed articles)  
-- “Japan’s Aid Policy Reform and Infrastructure Development Assistance: Resurgence of the ‘Japan Model,’” in *Asian Survey*, forthcoming.  
+- “Japan’s Aid Policy Reform and Infrastructure Development Assistance: Resurgence of the ‘Japan Model,’” in *Asian Survey* Vol. 59, No. 6, pp.1044-69.  
 - “The ‘Third Arrow’ or Friendly Fire? The LDP Government’s Reform Plan for the Japanese Agricultural Co-op,” in *Japanese Political Economy*, Vol. 41 No. 1-2, 2015, pp.1-22.  
 - “Alternative Paths to Party Polarization: External Impacts of Intraparty Organization in Japan” coauthored with N. Fujimura and S. Machidori in *Journal of East Asian Studies*, Vol. 13, No. 3, 2013, pp.409-441.  
 - “The Impact of Rural Votes in Foreign Policies: The FTA Policies under the DPJ government in Japan” in *Asian Journal of Political Science*, Vol.21, No. 3, 2013, pp.224-248.  
