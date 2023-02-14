@@ -23,13 +23,13 @@
 - 「森林認証制度とグローバリズム」 [Globalization and Forest Certification System], coauthored with A. Kajiwara,『国民経済雑誌』 Vol. 188 (5). 2003, pp. 51-61.  
   
 **Edited volume chapters:**  
-- “Japan’s Food Security Policy,” in K. Nakatsuji (Ed.). Japan’s Security Policy, London: Routledge, 2023, pp. 177–197.
+- “Japan’s Food Security Policy,” in K. Nakatsuji (Ed.). *Japan’s Security Policy*, London: Routledge, 2023, pp. 177–197.
 - 「民主党政権における日本のFTA政策」 [Japan’s FTA Policies under the DPJ Government] in K. Nakatsuji (ed.) 『なぜリージョナリズムなのか』(ナカニシヤ出版, 2013), pp.215-241.  
 - 「港湾における経済援助と技術供与」[Economic Cooperation and Technology Transfer in Ports and Harbors Industry], Kagawa et al. (eds.)『経済社会と港湾』 (パールロード, 2004), pp.83-96.  
 - 「運輸問題における国際協力の形態と相対的利得」[International Cooperation and Relative Gain in Transportation Issues] in 『交通と文化の史的融合』Mitsumura et. al (eds.), (八千代出版 2002), pp. 161–180.  
 
 **Opinion articles:**  
-- [“Abe’s Death Shifts Balance of Power within LDP,”] (https://www.eastasiaforum.org/2022/10/11/abes-death-shifts-balance-of-power-within-ldp) in *East Asia Forum*, October 11, 2022.  
+- [“Abe’s Death Shifts Balance of Power within LDP,”](https://www.eastasiaforum.org/2022/10/11/abes-death-shifts-balance-of-power-within-ldp) in *East Asia Forum*, October 11, 2022.  
 - [“Challenges in Boosting Japan’s Agricultural Exports,”](https://www.eastasiaforum.org/2021/03/12/challenges-in-boosting-japans-agricultural-exports) in *East Asia Forum*, March 12, 2021.  
   
 **Book translation (English to Japanese):**  
