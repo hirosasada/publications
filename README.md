@@ -1,6 +1,7 @@
 [home](https://hirosasada.github.io/) > publications  
 
 **Books:**  
+- ***The Origin of Japan’s Protectionist Agricultural Policy: Agricultural Administration in Modern Japan*** **(Routledge 2023)**  
 - **農業保護政策の起源: 近代日本の農政1874~1945（勁草書房, 2018）**  
 - **일본 발전국가의 기원과 진화 (Hanul Publishing, 2014)**  
 - ***The Evolution of Japanese Developmental State*** **(Routledge, 2013)**  
